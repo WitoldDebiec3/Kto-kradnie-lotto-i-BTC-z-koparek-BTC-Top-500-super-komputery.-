@@ -1,0 +1,1 @@
+# Kto-kradnie-lotto-i-BTC-z-koparek-BTC-Top-500-super-komputery.-
